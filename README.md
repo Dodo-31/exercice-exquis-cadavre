@@ -12,3 +12,7 @@ Alors qu'ils exploraient le grenier magique, un **pingouin en smoking** glissa s
 Il portait une loupe sur l'œil et semblait vouloir les aider à résoudre le mystère.  
 
 Monsieur Patate sourit : "Parfait ! Plus on est de fous, plus on rit… et plus vite on trouve le coupable !"
+
+##Soudain, la carotte éternua. Une pluie de paillettes remplit le grenier et une voix cria :
+##"Quelqu'un m'a volé mes chaussettes magiques !"
+##Monsieur Patate fronça les sourcils : le vrai mystère venait de commencer...
