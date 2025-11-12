@@ -16,3 +16,10 @@ Monsieur Patate sourit : "Parfait ! Plus on est de fous, plus on rit… et plus 
 ##Soudain, la carotte éternua. Une pluie de paillettes remplit le grenier et une voix cria :
 ##"Quelqu'un m'a volé mes chaussettes magiques !"
 ##Monsieur Patate fronça les sourcils : le vrai mystère venait de commencer...
+
+
+La poule philosophe se gratta la tête avec son aile : « Logiquement, l'absence de chaussettes implique la présence d'un voleur, ou d'une très mauvaise hygiène. »
+
+Le chien jazzy entama un blues mineur, ses notes aiguës résonnant étrangement dans la poussière de paillettes.
+
+Le pingouin, lui, pointa sa loupe vers une trace de pas minuscule, sentant l'odeur persistante du camembert et du cirque.
