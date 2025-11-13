@@ -13,9 +13,9 @@ Il portait une loupe sur l'œil et semblait vouloir les aider à résoudre le my
 
 Monsieur Patate sourit : "Parfait ! Plus on est de fous, plus on rit… et plus vite on trouve le coupable !"
 
-##Soudain, la carotte éternua. Une pluie de paillettes remplit le grenier et une voix cria :
-##"Quelqu'un m'a volé mes chaussettes magiques !"
-##Monsieur Patate fronça les sourcils : le vrai mystère venait de commencer...
+Soudain, la carotte éternua. Une pluie de paillettes remplit le grenier et une voix cria :
+"Quelqu'un m'a volé mes chaussettes magiques !"
+Monsieur Patate fronça les sourcils : le vrai mystère venait de commencer...
 
 
 La poule philosophe se gratta la tête avec son aile : « Logiquement, l'absence de chaussettes implique la présence d'un voleur, ou d'une très mauvaise hygiène. »
